@@ -7,7 +7,9 @@ I use a TV with as my monitor.
 Ultimate Windows 11 hater.
 CS enthusiast.
 Y de puto España.
-
+Tengo un fuckin C1 con 16 años.
+Mi hermano en cristo, soy un puto adicto al Minecraft, escucho drill, rap mainstream americano, y estoy cronicamente pegado al puto Brawl Stars.
+Monthly income de 35 euros.
 
 <#----#>
 
